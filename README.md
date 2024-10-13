@@ -25,10 +25,10 @@ You have the right to:
 - Access the data we collect about you.
 - Request that we delete any personal information.
 
-If you would like to exercise these rights, please contact us at [support@yourappname.com](mailto:support@yourappname.com).
+If you would like to exercise these rights, please contact us at [logeshgcp@gmail.com](mailto:logeshgcp@gmail.com).
 
 ## Changes to This Privacy Policy
 We may update this privacy policy from time to time. Any changes will be posted on this page, so please review it regularly.
 
 ## Contact Us
-If you h
+If you hhave any doubts you can contact us at at [logeshgcp@gmail.com](mailto:logeshgcp@gmail.com).
